@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alirazatech
+- 👀 I’m interested in Coding
+- 🌱 I’m currently also learning SEO and Digital Marketing. 
+- 💞️ I’m looking to collaborate on my coding and SEO projects.
+- 📫 reach me on my instagram @aliraza__447![favicon](https://user-images.githubusercontent.com/102824428/161313712-ea30b068-17cb-48b5-87d2-ba4b0e169598.png)
